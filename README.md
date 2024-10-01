@@ -1,3 +1,4 @@
+![photo_2024-09-27_08-15-27](https://github.com/user-attachments/assets/a215db63-8bd7-4a35-b3c5-36055c7565ee)
 Hi 👋 My name is IGOR KIRYANOV
 ==============================
 
